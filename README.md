@@ -1,0 +1,2 @@
+# bali
+ini adalah wisata
